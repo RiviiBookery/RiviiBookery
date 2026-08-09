@@ -1,3 +1,1 @@
-
-<img width="320" height="180" alt="1000014896" src="https://github.com/user-attachments/assets/b36c3303-40fd-4255-89b6-679baa23dc28" />
-wow I wonder what that bubble does
+<img width="386" height="357" alt="1000014957" src="https://github.com/user-attachments/assets/2c68633f-757a-409a-ae66-b684dffa20f2" />
