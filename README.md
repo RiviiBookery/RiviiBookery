@@ -1,5 +1,3 @@
-<img width="386" height="357" alt="1000014957" src="https://github.com/user-attachments/assets/2c68633f-757a-409a-ae66-b684dffa20f2" />
 
-
-ok.. just wanted to say, I may say problematic things if you are uncomf about it you could block me or dni
-and I still have sh thoughts so please dont mention anything sensitive or related to it -_-
+<img width="735" height="749" alt="1000015230" src="https://github.com/user-attachments/assets/774d1fce-77da-428a-9801-8fb3e06315f1" />
+trust ✨️LE PROCESS✨️
